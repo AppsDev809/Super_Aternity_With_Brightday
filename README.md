@@ -1,5 +1,5 @@
 # Super_Aternity_With_Brightday
-Is a more than 1 phone.
+Is a more than 1 phone installs.
 
 Word has coming language!
 
